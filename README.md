@@ -40,4 +40,6 @@ This is for educational purposes only. We don’t support or endorse any illegal
 
 For educational use only. We do not promote any illegal activities.
 
-Update:  09/14/2025
+
+
+Update:  18 September 2025
